@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @modione
+- 👋 Hi, I’m modione
+- discord tag: modione#3970
 <!---
 - 👀 I’m interested in yes
 - 🌱 I’m currently learning to live
